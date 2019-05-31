@@ -1,3 +1,3 @@
 # onboard-apps
 
-Download the zip below :) 
+Download the zip 👆
